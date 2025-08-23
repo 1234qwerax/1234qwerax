@@ -7,9 +7,5 @@
 <br>
 <br>
 지금만들고잇는거: Untitled Mining Game
-<br>
-을위한 Synced Event Editor
-<br>
-코딩5년했는데 하필 4.8년을 오블록스스튜디오 쳐해서 아는게없음 깃허브도 5년만에만든ㅜ
-<br><br><br>
+<br><br><br><br>
 pfp by 東間メリ
