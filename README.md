@@ -6,6 +6,4 @@
 똥겜만드는사람이애오!!!
 <br>
 <br>
-지금만들고잇는거: Untitled Mining Game
-<br><br><br><br>
-pfp by 東間メリ
+지금만들고잇는거: HyperSquare
